@@ -1,1 +1,1 @@
-# NeoFreya.github.io
+# IDN BOARDING SCHOOL WEBSITE
